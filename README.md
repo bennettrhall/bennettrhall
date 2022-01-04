@@ -1,4 +1,4 @@
-Hello, I am a technology and cybersecurity aficionado.
+Hello, I am a technology computer science, and cybersecurity aficionado.
 I have a combination of hands-on work experience and extensive classroom studies in the fields of cybersecurity and computer science.
 I have completed two internships, one as a Cybersecurity Analyst for a small consulting firm, and another as an Information Security Intern for an early stage social media startup.
 I am finishing up my Master of Science Degree in Cybersecurity at Fordham University where I have achieved a 3.975 GPA, become a member of the honors society, and I’m ranked in the top 10% of my class.
